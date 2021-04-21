@@ -1,1 +1,2 @@
 # Irchash-Azkia-Maknuna
+Halo! Perkenalkan saya Irchash Azkia Maknuna mahasiswa semester 2 prodi Geofisika Universitas Gadjah Mada. saat ini saya betempat tinggal Pati, Jawa Tengah. saya lahir pada tanggal 29 Juni 2002 dan saat ini saya berumur 18 tahun. kegiatas sehari hari yang saya lakukan saat ini adalah kuliah dan organisasi. dua hal tersebut menjadi kesibukan utama saya saat ini. hobi saya adalah bermain game dan membaca novel. namun saat ini hobi saya jarang saya lakukan karena banyaknya tugas kuliah dan organisasi.
